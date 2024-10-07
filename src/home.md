@@ -33,5 +33,6 @@ August 2022 - Present
 Muscatine Aquatic Center
 May 2019 - Sept 2023
 ### Assistant Manager, Swim Lesson Coordinator
-
+- Developed and implemented technical documents for staff's daily use
+- Restructured staff cleaning procedures to ensure clean facilities at all times
 

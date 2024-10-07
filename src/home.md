@@ -22,7 +22,7 @@ September 2023 - Present
 
 Pinnacle Productions
 April 2024 - August 2024
-### Production Intern
+### Event Production Intern
 - Blah Blah Blah I love my problematic boss 
 
 Mighty Muskie Marching Band

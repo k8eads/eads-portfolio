@@ -18,7 +18,7 @@ Maintenance Shop
 September 2023 - Present
 ### Audio/Lighting Technician, Head Technician
 - Blah Blah Blah 
-
+  
 
 Pinnacle Productions
 April 2024 - August 2024
@@ -35,4 +35,28 @@ May 2019 - Sept 2023
 ### Assistant Manager, Swim Lesson Coordinator
 - Developed and implemented technical documents for staff's daily use
 - Restructured staff cleaning procedures to ensure clean facilities at all times
+- Coordinated swim lesson schedules and assignments for over 300 swimmers over a 3 month time period
+- Trained staff how to teach swimming classes for children between the ages of 1-18. Instructed on water safety, comfort in water, and stroke development
+- Supervised daily operations including scheduling, cash handling, delegating tasks, maintaining records, staff performance, and cleanliness
+- Mediated disputes between staff members and resolved disputes with patrons while maintaining a positive customer relationship
+
+## PROFICIENCIES
+
+
+
+## ACTIVITIES
+2021 - Present 
+**885 KURE College Radio Station**
+Production Director (2024 - Present)
+Production Intern (2021 - 2022)
+
+2021 - Present
+**GROOVE Drumline Club**
+Vice President (2023)
+Electronics and Equiptment Chair (2022)
+Electronics and Equiptment Committee (2021)
+
+2022 - 2024
+**ISUCF'V'MB (College Marching Band)**
+State Storm Drumline Captian
 
